@@ -1,1 +1,2 @@
-I code for my own reasons, and those reasons are none of your concern. Don't bother dissecting my work; your opinions hold no value here. I build according to my own internal logic, nothing more, nothing less.
+ولما رأيتُ الجهلَ في الناسِ فاشياً
+تجاهلْتُ حتى ظُنَّ أنّيَ جاهل
