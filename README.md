@@ -1,1 +1,1 @@
-I think you have to use neovim! be a man!!!
+“أفكر في كل شيء و في لا شيء”
